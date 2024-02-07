@@ -1,5 +1,5 @@
 # 💫 About Me:
-🖥CS STUDENT
+🖥 CS STUDENT
 
 
 ## 🌐 Socials:
